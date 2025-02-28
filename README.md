@@ -51,7 +51,3 @@ Aishwarya Gupta
 
 For more details, see the project report.
 
----
-
-Let me know if you want any adjustments or additional sections! 🚀
-
